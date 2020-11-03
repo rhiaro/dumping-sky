@@ -22,3 +22,17 @@ Maprush stood in line at the Supply Hub, wondering about Bechar's absence. Every
 
 The temperature that day was weird. The drop in wind made it seem warmer than it usually was. Maprush had sleeves rolled up to elbows, exposing dark forearms, but hands remained clamped in sturdy polyfibre gloves. Maprush's hair, usually tightly wrapped under a scarf, was today bouncing free in a wild tangle. The unexpected calm was affecting everyone's mood, Maprush decided, so Bechar would be out of sorts as well.
 
+
+------
+
+Ma'Solloqay trudged along the sand, thinking about the names given to things retrospectively. Decads or centads after the fact. Someone somewhere decided to call a great event the Battle of Five Elms, or a certain era the Time of the Reigning Sails. The things that happened were condensed, simplified, reshaped to fit the name. Ma wondered what people of the future would call the time now, and the time after. After would be something like.. something with _union_ or _alliance_. If everything worked out like it was supposed to.
+
+The thing is, Ma never intended to go into politics. Ma was an historian. Ma couldn't help but look back on things from the future, even a future that hadn't happened yet.
+
+Waves rolled in tenderly to Ma's left. The sand underfoot was soft and damp, dusty yellow swirled with lines of black. Ma skirted around the occasional patches of grey and red pebbles, bare feet feeling too delicate to stand pressure of even the smoothest of stones. There was seaweed too, in odorous tangles.
+
+The sun was setting, and offered it's final bursts of warmth from an orange sky. Ma's face turned towards it. The last day under this sun. The last day until whatever future historians would call _after_.
+
+Sea birds called and from the distance came the sound of a child laughing, distorted by the air and rocks between. Besides the sea, no other sounds. Ma enjoyed, for a moment, the feeling of time being frozen. This world was perfect.
+
+It had taken generations of work to make it so. It was the only world in the system that was entirely perfect. Others had pollution, deprivation, unfriendly climates. Pockets of problems amidst their idyllic majorities. It helped that Celastana was small and stable of course but that wasn't enough to eradicate all challenges of a populated planet. The rest had taken work. And unity. The others in the system were on track to join them. All worlds were in this together
