@@ -10,4 +10,15 @@ The tall beings stood as if they were in conversation with each other, but made 
 
 As Bechar watched from hiding, one of the tall creatures extended a lengthy lower limb to poke at the heap on the ground, which didn't move. A heartbeat later, the ground beneath them swelled, then crumbled, and the tall creatures were suddenly buried up to their necks in dark silt. The himinie was gone altogether.
 
-Bechar smirked. There were other himinies around after all. Small as they were, they could take care of themselves, and took care of their own.
+Bechar smirked. There were other himinies around after all. Small as they were, they could take care of themselves, and took care of their own. Under the ground was the domain of the himinies. Their network of tunnels under the planet's surface was unmapped, at least as far as Bechar knew. They were a long way from a Supply Hub here, which was usually the only place the himinies surfaced to interact with the planet's other residents.
+
+Bechar just watched as the helmeted beings struggled in the mud. Their suits would protect them from the cold, but they wouldn't be able to survive there forever. A jetsuit should work in the mud after a short exposure, and Bechar wondered why they didn't activate them. Probably they had someone, some shuttle or ground trolley, they could call for a rescue. Better to leave before someone else got here. As Bechar turned, intending to wriggle away without being seen, there came a grating, slurping sound, and a tremble in the ground. Bechar looked back in time to see the reflective tops of two helmets disappearing into the surface.
+
+Bechar hurried away. Unstable patches of ground and sinking mud were common out near the wetlands, but not here. That was not a natural occurrence. Unless you subscribed to the belief that anything the himinies did was natural. The himinies had done this alright. There was no other explanation.
+
+-----
+
+Maprush stood in line at the Supply Hub, wondering about Bechar's absence. Everyone else in the line was a little squirt of a child, doing their family duty.  Maprush towered over the tallest of them by a chest and a head. Bechar didn't make a habit of finding better things to do than pick up the food, but did have a habit of disappearing for several turns at a time and not checking a chronomark. The line shuffled forward. Kids passed by carrying backpacks or pulling suspended trolleys piled high with supplies, splitting off into every different direction as they left the Supply Hub from the other side. Maprush could not decide whether to be worried yet or not.
+
+The temperature that day was weird. The drop in wind made it seem warmer than it usually was. Maprush had sleeves rolled up to elbows, exposing dark forearms, but hands remained clamped in sturdy polyfibre gloves. Maprush's hair, usually tightly wrapped under a scarf, was today bouncing free in a wild tangle. The unexpected calm was affecting everyone's mood, Maprush decided, so Bechar would be out of sorts as well.
+
