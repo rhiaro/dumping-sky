@@ -1,3 +1,13 @@
+_Broadcast to all inhabitants:_
+
+_Main dome will be rotated twenty degrees portwise to allow for Debris adjustment at seventh turn. All elevator and shuttle traffic suspended for duration. Debris fallout may impact surface in grid 145 by 2688 (sow peace accolade)._
+
+_Incoming Storm Petree from Ucas Major: expect heavy flooding in coastal areas._
+
+_Natural light unavailable in Shanti Tow region for at least four decaturns beginning tomorrow at first turn due to orbital alignment of Debris Ring Beta docking station._
+
+_This broadcast was brought to you by_ PLAY2WIN Hall of Rapture _where your wildest dreams are made reality._
+
 The wind had stopped. It hadn't been this still in... well, a long time. It was hard to measure time on a planet with no seasons and inconsistent daylight. A planet that didn't even really have a name. Bechar's siblings called it Tunnae, but that was just a word from their ancestors' old tongue. It meant "home", but with a twist. Home that wasn't really home. Home that you had been away from for so long that it wasn't quite familiar when you got back. Home that you hadn't really settled into, but you were there and had nowhere else to go, so might as well make the best of it. Less "home", and more "here". More "this is where we are right now."
 
 This was the only place Bechar had ever been. Bechar, like most people, didn't draw a distinction between the planet's surface and the chaotic orbital habitats. They were all part of Tunnae, neither comfortable or convenient, neither more or less "home" than the other, just part of life.
@@ -22,12 +32,25 @@ Maprush stood in line at the Supply Hub, wondering about Bechar's absence. Every
 
 The temperature that day was weird. The drop in wind made it seem warmer than it usually was. Maprush had sleeves rolled up to elbows, exposing dark forearms, but hands remained clamped in sturdy polyfibre gloves. Maprush's hair, usually tightly wrapped under a scarf, was today bouncing free in a wild tangle. The unexpected calm was affecting everyone's mood, Maprush decided, so Bechar would be out of sorts as well.
 
+Maprush stepped into the Supply Hub, the ambient temperature increasing just a little from heat transmitted through a deck of creaking metal panels. It was a nice change from cold mud underfoot. Mud that had been dragged in from outside was dried and cracking on the floor, filling the air with a hearty musty smell. The Supply Hub was a quiet space; any words uttered were whispers, and sounds from outside were muted by the curving padded and plastered walls. The himinies didn't like sudden movements or loud sounds, and respecting that was second nature to anyone on the surface of Tunnae.
+
+This Supply Hub, like all others, was round, and the line that Maprush waited in curved in a spiral to the center. In the middle was a gentle slope to descend, and at the bottom of the slope two or three himinies waited. One person descended at a time. It was even warmer here, the metal deck became the ceiling, and the dried mud smell could sometimes be stifling.
+
+When the time came, Maprush had to crouch to make eye contact with the himinie who was checking identities. Wide brown eyes met beady black ones that never blinked. Most himinies looked the same to non-himinies, even those who had lived all their lives on the surface. Himinies stooped as they stood and walked, so looked shorter in stature than they really were, but still were rarely taller than a child of any other species on Tunnae. Short, bristly fur covered their bodies, limbs and faces, in colours that ranged from inky blue, through all shades of mud, to the dark beige of wet sand. They had six limbs. Two feet planted firmly on the ground, when they were dealing with non-himinies at least, and two that hung loose, curled or dragging, with wide webbed claws. Their forearms, or legs, were smaller and more dexterous, but similarly webbed and clawed.
+
+The himinie who looked into Maprush's eyes was remembering Maprush from every other encounter Maprush had ever had with any other himinie before. The himinie remembered that Maprush was part of a household of two, remembered Bechar, remembered how many decaturns worth of supplies Bechar had collected for them both last time, and that more than that amount of time had passed since then.
+
+The himinie waved Maprush past, and another himinie watched closely as Maprush loaded up a backpack from low shelves, observing how much was taken. It wasn't much. Maprush would send Bechar back in a few decaturns for more.
+
+Maprush finished packing, nodded thanks to the himinies, and ducked through a low opening to ascend another slope. This led upwards in a straight line this time, back to the surface a few strides from the back of the Supply Hub.
+
+It was cooler now. Partly due to the contrast from the air inside the Supply Hub, but also because the widest part of the debris rings had moved overhead, filling the sky, blocking light from the already distant home stars. The debris rings brought their own light, uneven and metallic, reflections bouncing off haphazard surfaces in unnatural colours.
 
 ------
 
 Ma'Solloqay trudged along the sand, thinking about the names given to things retrospectively. Decads or centads after the fact. Someone somewhere decided to call a great event the Battle of Five Elms, or a certain era the Time of the Reigning Sails. The things that happened were condensed, simplified, reshaped to fit the name. Ma wondered what people of the future would call the time now, and the time after. After would be something like.. something with _union_ or _alliance_. If everything worked out like it was supposed to.
 
-The thing is, Ma never intended to go into politics. Ma was an historian. Ma couldn't help but look back on things from the future, even a future that hadn't happened yet.
+The thing is, Ma'Solloqay never intended to go into politics. Ma was an historian. Ma couldn't help but look back on things from the future, even a future that hadn't happened yet.
 
 Waves rolled in tenderly to Ma's left. The sand underfoot was soft and damp, dusty yellow swirled with lines of black. Ma skirted around the occasional patches of grey and red pebbles, bare feet feeling too delicate to stand pressure of even the smoothest of stones. There was seaweed too, in odorous tangles.
 
@@ -35,4 +58,9 @@ The sun was setting, and offered it's final bursts of warmth from an orange sky.
 
 Sea birds called and from the distance came the sound of a child laughing, distorted by the air and rocks between. Besides the sea, no other sounds. Ma enjoyed, for a moment, the feeling of time being frozen. This world was perfect.
 
-It had taken generations of work to make it so. It was the only world in the system that was entirely perfect. Others had pollution, deprivation, unfriendly climates. Pockets of problems amidst their idyllic majorities. It helped that Celastana was small and stable of course but that wasn't enough to eradicate all challenges of a populated planet. The rest had taken work. And unity. The others in the system were on track to join them. All worlds were in this together
+It had taken generations of work to make it so. It was the only world in the system that was entirely perfect. Others had pollution, deprivation, unfriendly climates. Pockets of problems amidst their idyllic majorities. It helped that Celastana was small and stable of course but that wasn't enough to eradicate all challenges of a populated planet. The rest had taken work. And unity. The others in the system were on track to join them. All worlds were in this together, they helped each other out. But Celastana had got there first. That's why the Celastana delegation was the one going to Mua Langu V to meet representatives from almost every other populated system in the galaxy.
+
+------
+
+
+
