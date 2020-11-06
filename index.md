@@ -28,6 +28,18 @@ Bechar hurried away. Unstable patches of ground and sinking mud were common out 
 
 -----
 
+_Attention all citizens of the Surface!_
+
+_A large deposit of wood - that's right, real wood from real trees - is dropping into a veeeery low orbit in about half a decaturn!_
+
+_(That's five turns folks, just five turns from now.)_
+
+_Pack your haulers, get your jetsuits on, hop in your shuttles, whatever it takes, because once it hits that atmosphere it's gone gone gone._
+
+_The folks upstairs have decided it's not worth saving! But we passionately disagree. Your best launch point is gonna be to triangulate between toast bowl power, fire knee housing, and Supply Hub T7. Good luck!_
+
+_You're listening to BKM Radio, for the realest updates from the Surface._
+
 Maprush stood in line at the Supply Hub, wondering about Bechar's absence. Everyone else in the line was a little squirt of a child, doing their family duty.  Maprush towered over the tallest of them by a chest and a head. Bechar didn't make a habit of finding better things to do than pick up the food, but did have a habit of disappearing for several turns at a time and not checking a chronomark. The line shuffled forward. Kids passed by carrying backpacks or pulling suspended trolleys piled high with supplies, splitting off into every different direction as they left the Supply Hub from the other side. Maprush could not decide whether to be worried yet or not.
 
 The temperature that day was weird. The drop in wind made it seem warmer than it usually was. Maprush had sleeves rolled up to elbows, exposing dark forearms, but hands remained clamped in sturdy polyfibre gloves. Maprush's hair, usually tightly wrapped under a scarf, was today bouncing free in a wild tangle. The unexpected calm was affecting everyone's mood, Maprush decided, so Bechar would be out of sorts as well.
