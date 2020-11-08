@@ -60,6 +60,14 @@ It was cooler now. Partly due to the contrast from the air inside the Supply Hub
 
 ------
 
+_A team of seventy five delegates from around Celastana will be setting out tomorrow for the eighteen month trip to Mua Langu V. There, they will meet similar parties from some two hundred and twenty four occupied systems around the galaxy. Now eighteen months may seem like a long time for a trip, but many of these will have travelled far further than our lucky representatives, and some using inferior technology. This event has been more than ten years in the making!_
+
+_Indeed Celastana, as the figurehead of the five planets in our Puhap solar system, will be one of the most advanced teams at the conference._
+
+_Tune in later tonight for detailed profiles of every single one of our seventy five ambassadors. Find out how they were chosen, and what they are bringing to the table._
+
+_Prime City Evening News, d203 of Final Quarter, 16701__
+
 Ma'Solloqay trudged along the sand, thinking about the names given to things retrospectively. Decads or centads after the fact. Someone somewhere decided to call a great event the Battle of Five Elms, or a certain era the Time of the Reigning Sails. The things that happened were condensed, simplified, reshaped to fit the name. Ma wondered what people of the future would call the time now, and the time after. After would be something like.. something with _union_ or _alliance_. If everything worked out like it was supposed to.
 
 The thing is, Ma'Solloqay never intended to go into politics. Ma was an historian. Ma couldn't help but look back on things from the future, even a future that hadn't happened yet.
@@ -71,6 +79,12 @@ The sun was setting, and offered it's final bursts of warmth from an orange sky.
 Sea birds called and from the distance came the sound of a child laughing, distorted by the air and rocks between. Besides the sea, no other sounds. Ma enjoyed, for a moment, the feeling of time being frozen. This world was perfect.
 
 It had taken generations of work to make it so. It was the only world in the system that was entirely perfect. Others had pollution, deprivation, unfriendly climates. Pockets of problems amidst their idyllic majorities. It helped that Celastana was small and stable of course but that wasn't enough to eradicate all challenges of a populated planet. The rest had taken work. And unity. The others in the system were on track to join them. All worlds were in this together, they helped each other out. But Celastana had got there first. That's why the Celastana delegation was the one going to Mua Langu V to meet representatives from almost every other populated system in the galaxy.
+
+Ma found it strange that even small contingents from the other four planets in Puhap system were not coming along too. Nothing had been stipulated about delegations hailing from only one origin world per system, but the decision had been made early on in the planning, with fast agreement from all of the various other governments.
+
+Celastana was the only planet with a completely unified population and single government though. Maybe that was it.
+
+Ma'Solloqay was a deputy of a deputy, a glorified secretary really. And yet, was someone deemed important enough to be included on this trip. Ma was well liked in the Office of Statistics and Representation; an efficient worker with an easy smile and an almost photographic memory for numbers and figures.
 
 ------
 
