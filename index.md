@@ -88,5 +88,45 @@ Ma'Solloqay was a deputy of a deputy, a glorified secretary really. And yet, was
 
 ------
 
+"_Metac_, where were you?" demanded Teak as Bechar came scrambling down the corrugated tube that served as the entrance to their den.
 
+Bechar was immediately set upon by Buthorn, a four-limbed creature with shaggy grey fur and an enormous wagging tail. Buthorn pawed at Bechar's chest, tongue lolling, drool clinging to whiskers, and emitted a happy gurgling sound.
+
+"Down little monster, down," Bechar murmured, mussing Buthorn's fur, encouraging the mudhound back to the ground.
+
+"Maprush was in here looking for you," Teak pressed, swivelling on a hover chair to face Bechar. "Something about not having any beans left."
+
+"Ah, detritus," Bechar cursed. "I shoulda gone to the Shub today. Too late now, probably." The Supply Hubs were always open, but Maprush would certainly have needed the beans several turns ago.
+
+"Pick up anything good from the stacks?"
+
+"No..." Bechar got a distant look. "Just these spoons. I got kind of... distracted."
+
+"What's up?" Teak whizzed the hover chair over to where Bechar was slumped on a floor cushion and handed Bechar a steaming frothy cup.
+
+"Thanks _metac_," Bechar sipped at the vaguely lilac foam. The drink was _bear_, made from the powdered tubers of one of the many native marsh plants cultivated by the himinies. It was hot and soothing, but also contained a stimulant. Bechar felt mind clouds begin to clear, and muscles relax.
+
+Teak hovered, expectantly.
+
+"There were some offworlders - by their look - they had a himini, balled up..."
+
+"Just one?"
+
+"Yeah, yeah, one, and they were poking with electro rods or something..."
+
+"That's awful! Detritus and more detritus, _metac_, what did you do?"
+
+"Nothing. I didn't know what to do. But something sucked them into the ground. They just disappeared."
+
+"Ha! Himinies look out for their own."
+
+"Yeah, but... What do you think happened? I've never seen that before."
+
+"I heard about it, you know, from Conto out west. People, offworlders mostly, disappearing in the marsh all the time."
+
+"No, no, this was different. It wasn't a sinkhole. I was out by the far stacks! Near that crashed shuttle, the one with red on the side. Mud out there is solid. It was like the ground crumbled away, then the whole filled right back up."
+
+"Nah I mean it," Teak dropped the chair to almost the floor, down to Bechar's level. "It happens in solid parts of the marsh, where folk think it's safe and solid, I swear! Nothing like just sinking in wetlands. Disappear, nothing ever found. In sinkholes, usually you find something, some while later you know?"
+
+Bechar shrugged, unimpressed by rumours from the west.
 
