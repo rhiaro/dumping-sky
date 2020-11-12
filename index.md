@@ -58,6 +58,20 @@ Maprush finished packing, nodded thanks to the himinies, and ducked through a lo
 
 It was cooler now. Partly due to the contrast from the air inside the Supply Hub, but also because the widest part of the debris rings had moved overhead, filling the sky, blocking light from the already distant home stars. The debris rings brought their own light, uneven and metallic, reflections bouncing off haphazard surfaces in unnatural colours.
 
+Maprush's mind wandered on the slow walk home. The light was distracting and comforting in equal measure. Shadows appeared to move and change, beckoning, twisting, and wandering through peripheral vision. Other surface dwellers passed by on the wide track between Port Dee and the Supply Hub, but nobody Maprush knew well. It was a track that had formed from use, not something constructed, the mud pounded down into a hard almost black clay. Footsteps and voices swirled in the air. A distant roar accompanied a plume of black smoke from a metal processing plant out east. A faint rattling whoosh was the signature sound of an unseen shuttle launch from one of the lower ring bays.
+
+At home, Maprush put five decaturns worth of beans in the day-cooker. Maprush lived with Bechar in a place that was far too big for the two of them, but it wasn't long ago that this home had been full. The structure they inhabited was circular; the walls had once been a single engine housing from an enormous freighter. It was barely recognisable as such these days. The outside had faded, rusted, been splattered by mud storms, and overgrown by ground vines over the course of several generations. The inside had been stripped for parts, no doubt, as soon as it had cooled from whatever had brought it down, leaving a hollow shell.
+
+Several dozen occupants had built up the interior so that by the time Maprush and siblings found the place they had a four storey structure to move into with a haphazard winding spiral stair through the middle to give access to each level.
+
+The kitchen was on the ground floor, near the main entrance (which was a jagged gash in the metal where someone had wrenched it aside to make an opening) for easy evacuation of cooking fumes. Primarily they used an industrial stove, many times repaired, that would consume almost anything as fuel. The day-cooker was a recent addition that Bechar had won in a game of modified calaps up in the rings. Maprush appreciated being able t leave a large quantity of food to soak and stew for several turns without needing supervision and with minimal risk of setting everything on fire.
+
+Maprush set the intruder trap on the way out, and walked to the center of the settlement. The wind was still almost non-existant, and the mud underfoot was wetter than usual. A few people were about, but it was eerily quiet. Normally the array of chaotic improvised homes that made up Port Dee, spread far across the flat ground, were rattling and jingling, tinkling and chiming. Windmills and sails of all sizes, decorative and functional, spun and flapped. But without the wind, everything was still.
+
+The elevator was in the approximate center of Port Dee. Maprush pressed into the space with several others, nodding at those with familiar faces (or helmets, or breathing masks), and waited, tuning out the safety instructions and countdown that played automatically. The elevator ascended, a quarter turn journey to the mid ring.
+
+Mid ring twelfth segment - commonly known as _murts_ - was Maprush and Bechar's 'local' spot in the orbital debris. The _murts_ elevator station had been constructed with an open transparent dome around it. It was bright; no debris between it and any of the home stars for several turns at a time, sometimes longer. Pretty luxurious really. There were even pots with broad-leaved plants in strategic locations cared for by enterprising ring dwellers to make the most of the light.
+
 ------
 
 _A team of seventy five delegates from around Celastana will be setting out tomorrow for the eighteen month trip to Mua Langu V. There, they will meet similar parties from some two hundred and twenty four occupied systems around the galaxy. Now eighteen months may seem like a long time for a trip, but many of these will have travelled far further than our lucky representatives, and some using inferior technology. This event has been more than ten years in the making!_
@@ -85,6 +99,18 @@ Ma found it strange that even small contingents from the other four planets in P
 Celastana was the only planet with a completely unified population and single government though. Maybe that was it.
 
 Ma'Solloqay was a deputy of a deputy, a glorified secretary really. And yet, was someone deemed important enough to be included on this trip. Ma was well liked in the Office of Statistics and Representation; an efficient worker with an easy smile and an almost photographic memory for numbers and figures.
+
+People knew they could count on Ma.
+
+Ma hoped they wouldn't change their minds after spending eighteen months cooped up on an intersystem liner.
+
+Ma was also redundancy. This was no secret. Space was moderately dangerous, and anything could happen in a year and a half. Ma swallowed a ball of nerves at the thought. It was done, everything was planned, and there was no backing out now. Not that Ma wanted to back out... but eighteen months in space?
+
+The furthest Ma had been to date, other than the quick couple of hour shuttle hop to Celastana's closest moon, was Perapanata. The sibling planet was three days away on commercial transit, and Ma had taken the trip as a school child.
+
+Ma felt a little pang of guilt at having not been back since, because that was where the technology for Ma's arms had been developed. Ma remembered the time spent their fondly. The young Ma had been the center of attention, doted on, beloved by local and systemwide media alike as the first recipient of a new kind of myoneural prostheses. The technology was commonplace now of course, and even at the time it had not been revolutionary - just an iteration - but people liked to celebrate science with abandon here. That had been more than fifty Puhap standard years ago.
+
+Ma looked down, flexing fingers that were the same texture as natural skin, though with a slight metallic sheen to the dark blue-black that was more common on Celastana. The silvering effect was optional, not inherant to the prosthetics. Most people opted for their prosthetic additions to be indistinguishable from the limbs they might have been born with. At one time Ma preferred to blend in, but in later years, during an upgrade, had chosen on the spur of the moment to take a very small eccentric liberty and stand out. Though in reality, the difference was barely noticeable. But Ma knew.
 
 ------
 
