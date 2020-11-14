@@ -72,6 +72,24 @@ The elevator was in the approximate center of Port Dee. Maprush pressed into the
 
 Mid ring twelfth segment - commonly known as _murts_ - was Maprush and Bechar's 'local' spot in the orbital debris. The _murts_ elevator station had been constructed with an open transparent dome around it. It was bright; no debris between it and any of the home stars for several turns at a time, sometimes longer. Pretty luxurious really. There were even pots with broad-leaved plants in strategic locations cared for by enterprising ring dwellers to make the most of the light.
 
+Maprush crossed the open space under the dome, scarecely sparing a glance for surroundings, and took a direct route into a darker side corridor. _murts_, like most ring segments, was a maze of interconnecting tunnels, walkways and ladders. There were moving parts too, and sometimes you needed to pass through an airlock and take a very short shttle trip to get where you were going. For anyone comfortable in a spacesuit, there was a while different perspective on the debris rings to be had.
+
+There was a lot more diversity among the lifeforms what chose a permanent residence up in orbit, too. The planet's surface was mostly the domain of the himinies and humanoids, and various smaller mammels. There were some exceptions. But species less tolerant of higher gravity and barely life-sustaining conditions tended to opt for the rings.
+
+And folx came from all over, and ended up here for any number of different reasons. Usually it was better not to ask.
+
+Maprush had to slow down to weave through a gaggle of insectoids - either kik ha'a or gemliptus, Maprush never could tell them apart - who were engaged in some kind of heated debate across a whole corridor. Hisses, whistles and clicks filled the air and the buzz of wings as some were in flight, but the group broke and flowed around as Maprush passed through.
+
+Maprush turned a corner and had to duck as two celeian orbs zipped by overhead. A little way on, a hubot - more bot than hu- by the outward appearance - walked arm in arm between two exceptionally tall and lanky red tonoans. Their long necks arched their heads forward in front of the rest of their bodies and their limbs curled in on themselves to take up as little of the restricted space as possible.
+
+A ladder led down what might once have been a vent in an explorer starship and opened out to a moderately sized space with walls composed primiarly of hundreds of old cryostasis pods.
+
+Maprus had to let go of the ladder and drop the rest of the way to the floor. The floor, too, was stasis pods, and curved and slippery underfoot. A challenge for most small-footed bipedal beings, but Maprush knew to make contact with the highest part of each pod domb where possible, and avoid slipping down the curved sides to the gaps between. Low gravity helped too with lightly stepping from pod to pod.
+
+The place was filled with a diverse and elaborate array of seating arrangements and tables, many of which were occpied.
+
+Maprush glide-hopped to a bar that was designed for beings of a humanoid size and shape. Stools were attached to the side of the bar, not in contact with the uneven floor, and all of them were empty. Maprush sat.
+
 ------
 
 _A team of seventy five delegates from around Celastana will be setting out tomorrow for the eighteen month trip to Mua Langu V. There, they will meet similar parties from some two hundred and twenty four occupied systems around the galaxy. Now eighteen months may seem like a long time for a trip, but many of these will have travelled far further than our lucky representatives, and some using inferior technology. This event has been more than ten years in the making!_
