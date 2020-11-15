@@ -66,6 +66,10 @@ Several dozen occupants had built up the interior so that by the time Maprush an
 
 The kitchen was on the ground floor, near the main entrance (which was a jagged gash in the metal where someone had wrenched it aside to make an opening) for easy evacuation of cooking fumes. Primarily they used an industrial stove, many times repaired, that would consume almost anything as fuel. The day-cooker was a recent addition that Bechar had won in a game of modified calaps up in the rings. Maprush appreciated being able t leave a large quantity of food to soak and stew for several turns without needing supervision and with minimal risk of setting everything on fire.
 
+Since Bechar was nowhere to be found for now, it was a good opportunity to  go up to the rings and check on their upcoming calaps prospects. Bechar was the calaps genius, who played for fun. Maprush was the one who made it worthwhile. It had been many centaturns since this arrangement had begun, but Maprush always felt a little nervous about any encounter with _the provider_, Hon Saring.
+
+At some point, Maprush would have to tell Bechar about it all. But not yet. Better to let Bechar have as much of an innocent childhood as anyone could, in a place like Tunnae.
+
 Maprush set the intruder trap on the way out, and walked to the center of the settlement. The wind was still almost non-existant, and the mud underfoot was wetter than usual. A few people were about, but it was eerily quiet. Normally the array of chaotic improvised homes that made up Port Dee, spread far across the flat ground, were rattling and jingling, tinkling and chiming. Windmills and sails of all sizes, decorative and functional, spun and flapped. But without the wind, everything was still.
 
 The elevator was in the approximate center of Port Dee. Maprush pressed into the space with several others, nodding at those with familiar faces (or helmets, or breathing masks), and waited, tuning out the safety instructions and countdown that played automatically. The elevator ascended, a quarter turn journey to the mid ring.
@@ -89,6 +93,8 @@ Maprus had to let go of the ladder and drop the rest of the way to the floor. Th
 The place was filled with a diverse and elaborate array of seating arrangements and tables, many of which were occpied.
 
 Maprush glide-hopped to a bar that was designed for beings of a humanoid size and shape. Stools were attached to the side of the bar, not in contact with the uneven floor, and all of them were empty. Maprush sat.
+
+The counter in front of Maprush blinked a green ready light.
 
 ------
 
