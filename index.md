@@ -184,4 +184,4 @@ Bechar shrugged, unimpressed by rumours from the west.
 
 The game of modified calaps was one of psychology, memory, and pattern recognition. The mistake most people made was to see it primarily as a game of chance.
 
-Bechar had learned how to play at a young age, from the oldest sibling Kento. There were many playing styles, and Bechar found it intuitive to quickly detect what was being used by any particular opponant. 
+Bechar had learned how to play at a young age, from the oldest sibling Kento. There were many playing styles, and Bechar found it intuitive to quickly detect which was being used by any particular opponant. Teak was a moderately good opponent, only standing a chance against Bechar because they knew each other so well.
