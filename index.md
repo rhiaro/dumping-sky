@@ -96,6 +96,12 @@ Maprush glide-hopped to a bar that was designed for beings of a humanoid size an
 
 The counter in front of Maprush blinked a green ready light.
 
+Maprush braced. Reached a long finger forward, and tapped at the slightly glossy surface. Barely visible inputs glowed and emitted a very soft vibration under a gentle pressure. Maprush had used the ordinary unremarkable counter menu system to request a spice seppin, a punchy bubbling drink that was usually served in a tall glass with chewey algae balls bobbing around in it.
+
+No drink came, but a broad, cloaked figure appeared seemingly from nowhere by the wall at the far end of the counter. Maprush sighed, slipped off the seat, and followed the figure through a gap in the wall. The domed cover of a stasis pod slipped back into place behind them with a hiss.
+
+_I've gotta make this stop,_ Maprush thought for the millionth and first time. But the hold of Hon Saring was too powerful. Maprush tried not to think about the specifics.
+
 ------
 
 _A team of seventy five delegates from around Celastana will be setting out tomorrow for the eighteen month trip to Mua Langu V. There, they will meet similar parties from some two hundred and twenty four occupied systems around the galaxy. Now eighteen months may seem like a long time for a trip, but many of these will have travelled far further than our lucky representatives, and some using inferior technology. This event has been more than ten years in the making!_
