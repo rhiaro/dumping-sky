@@ -191,3 +191,37 @@ Bechar shrugged, unimpressed by rumours from the west.
 The game of modified calaps was one of psychology, memory, and pattern recognition. The mistake most people made was to see it primarily as a game of chance.
 
 Bechar had learned how to play at a young age, from the oldest sibling Kento. There were many playing styles, and Bechar found it intuitive to quickly detect which was being used by any particular opponant. Teak was a moderately good opponent, only standing a chance against Bechar because they knew each other so well.
+
+-------
+
+Of those who weren't born on this planet, most came to get away from something. Most were driven there, and not interested in looking back. This, along with its distance from the next nearest inhabitable world (Mua Noxis VII) played a large part in why the place was so isolated.
+
+The other thing that contributed was that Fauthstoquaite wanted it to be that way.
+
+There had been a saying in Fauthstoquaite's family that all lost things found their way to Mua Noxis XII. They called it _petch_ though, which alluded to a hole, a dirty, smelly hole, the kind one wouldn't really want to fall into.
+
+Fauthstoquaite preferred the galactic standard name, not least because Fauthstoquiate _had_ fallen down that hole, and not entirely by accident.
+
+Most people in the Mua twin solar systems didn't spare a thought for the distance twelfth Noxis planet. Nobody was looking in, and nobody was looking out. It was the perfect place for a covert base of operations. And the fact that two solar systems - at least - jettisoned most of their unwanted _stuff_ in that direction meant that there was the tech to build anything, if you knew how.
+
+Maprush met Fauthstoquaite for the first time while one of Bechar's more intense _calaps_ games was going on in the background. Bechar, as usual, was deeply absorbed and oblivious to all but the other players and the pieces on the table. Maprush was at the back of the room, negotiating, as it were, with a member of Hon Saring's entourage.
+
+The right players had come to the table - that had been Maprush's responsibility for this job - but one of them didn't have the expected assets. Not Maprush's fault. Hon Saring's lackeys took care of the details like that. Which is why one such lackey was hissing aggressively at Maprush, pushing for a way to transfer the blame. 
+
+They stood side by side, both with backs against the wall, trying to keep their voices down and tones even so as not to disrupt the game as they argued. But this individual was a chonanoid: a surly, heavily muscled being whose thick skin literally bristled with anger. Most chonanoid species communicated primarily by smell, and this _metac_ reeked. Even Maprush, with a week humanoid olfactory system, was getting the message. And it couldn't be far from reaching the others in the room.
+
+----
+
+"I wonder if there's anyone else out there," Teak murmured to the sky.
+
+It was a rare moment. A gap in the debris wide enough to cast true darkness, long enough to lay and look at distant stars. More than a dozen or so twinkled down at the pair.
+
+Bechar looked sideways at Teak. "Of course there are, _tuppa_. Where do you think all the people *here* have come from? You know offworlders, right?"
+
+Teak waved a dismissive three-fingered hand. "I mean beyond our home star system. Around those other stars."
+
+Bechar frowned, but said nothing. Bechard had always assumed there were many such systems as their own. Sets of stars with sets of planets and a menagerie of occupants. Why shouldn't there be? Bechar had the distinct impression that most of the _calaps_ players in the rings were very far from local to their home stars. But nobody every talked about where they came from.
+
+A memory surfaced of a long time before. Bechar hadn't been playing _calaps_, but watching Kento. It was maybe the first time ever Bechar had been on the elevator and up to mid ring. The memory of the feeling of newness and unfamiliarity washed over Bechar for a moment. It might be pleasant to feel that way again sometime.
+
+The young Bechar, with no inhibitions about talking to strangers whatsoever, had been asking other _calaps_ players where they came from. At the time, Bechar supposed, the question referred to locations on Tunnae. Bechar's world at that point had recently extended from Port Dee to the western wetlands, so all manner of exciting possibilities were bubbling to the surface. But the responses ranged from cold to hostile. When Kento had realised what was going on, a gentle reprimand put an end to that line of enquiry.
