@@ -206,9 +206,11 @@ Most people in the Mua twin solar systems didn't spare a thought for the distanc
 
 Maprush met Fauthstoquaite for the first time while one of Bechar's more intense _calaps_ games was going on in the background. Bechar, as usual, was deeply absorbed and oblivious to all but the other players and the pieces on the table. Maprush was at the back of the room, negotiating, as it were, with a member of Hon Saring's entourage.
 
-The right players had come to the table - that had been Maprush's responsibility for this job - but one of them didn't have the expected assets. Not Maprush's fault. Hon Saring's lackeys took care of the details like that. Which is why one such lackey was hissing aggressively at Maprush, pushing for a way to transfer the blame. 
+The right players had come to the table - that had been Maprush's responsibility for this job - but one of them didn't have the expected assets. Not Maprush's fault. Hon Saring's lackeys took care of the details like that. Which is why one such lackey was hissing aggressively at Maprush, pushing for a way to transfer the blame.
 
-They stood side by side, both with backs against the wall, trying to keep their voices down and tones even so as not to disrupt the game as they argued. But this individual was a chonanoid: a surly, heavily muscled being whose thick skin literally bristled with anger. Most chonanoid species communicated primarily by smell, and this _metac_ reeked. Even Maprush, with a week humanoid olfactory system, was getting the message. And it couldn't be far from reaching the others in the room.
+They stood side by side, both with backs against the wall, trying to keep their voices down and tones even so as not to disrupt the game as they argued. But this individual was a chonanoid: a surly, heavily muscled being whose thick green-grey skin literally bristled with anger. Most chonanoid species communicated primarily by smell, and this _metac_ reeked. Even Maprush, with a week humanoid olfactory system, was getting the message. And it couldn't be far from reaching the others in the room.
+
+The chonanoid, whose name was Ish Tavash, was in the employ of Hon Saring for similar reasons to Maprush, though neither of them even spared a thought for the idea they might have anything in common. To Maprush, Ish Tavash was a looming bully, a stereotypical thick-headed henchperson who was looking for any excuse to beat someone up.
 
 ----
 
