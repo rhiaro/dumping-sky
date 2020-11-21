@@ -88,7 +88,7 @@ Maprush turned a corner and had to duck as two celeian orbs zipped by overhead. 
 
 A ladder led down what might once have been a vent in an explorer starship and opened out to a moderately sized space with walls composed primiarly of hundreds of old cryostasis pods.
 
-Maprus had to let go of the ladder and drop the rest of the way to the floor. The floor, too, was stasis pods, and curved and slippery underfoot. A challenge for most small-footed bipedal beings, but Maprush knew to make contact with the highest part of each pod domb where possible, and avoid slipping down the curved sides to the gaps between. Low gravity helped too with lightly stepping from pod to pod.
+Maprush had to let go of the ladder and drop the rest of the way to the floor. The floor, too, was stasis pods, and curved and slippery underfoot. A challenge for most small-footed bipedal beings, but Maprush knew to make contact with the highest part of each pod domb where possible, and avoid slipping down the curved sides to the gaps between. Low gravity helped too with lightly stepping from pod to pod.
 
 The place was filled with a diverse and elaborate array of seating arrangements and tables, many of which were occpied.
 
@@ -98,9 +98,19 @@ The counter in front of Maprush blinked a green ready light.
 
 Maprush braced. Reached a long finger forward, and tapped at the slightly glossy surface. Barely visible inputs glowed and emitted a very soft vibration under a gentle pressure. Maprush had used the ordinary unremarkable counter menu system to request a spice seppin, a punchy bubbling drink that was usually served in a tall glass with chewey algae balls bobbing around in it.
 
-No drink came, but a broad, cloaked figure appeared seemingly from nowhere by the wall at the far end of the counter. Maprush sighed, slipped off the seat, and followed the figure through a gap in the wall. The domed cover of a stasis pod slipped back into place behind them with a hiss.
+No drink came, but a slender, cloaked figure appeared seemingly from nowhere by the wall at the far end of the counter. Maprush sighed, slipped off the seat, and followed the figure through a gap in the wall. The domed cover of a stasis pod slipped back into place behind them with a hiss.
 
 _I've gotta make this stop,_ Maprush thought for the millionth and first time. But the hold of Hon Saring was too powerful. Maprush tried not to think about the specifics.
+
+The figure's head was hooded and face covered by a smooth matt black helmet. No words were uttered, but Maprush knew it was Tosha Gove, a humanoid from the third or second planet in the Mua Langu system. The helmet contained breathing apparatus; the atmosphere on Tunnae did not suit everyone.
+
+Tosha Gove led Maprush down a stark corridor, lit with a clinically white light, a sharp contrast to the dim and warm tones of the bar. Tosha Gove was wearing hard-soled boots which clatted on the metal floor. As they approached the end of the corridor, distant shouting voices echoed.
+
+Tosha Gove pressed a wide, webbed palm to a panel in the wall and a door slid open. Maprush passed through, feeling the light tingle of a weapon scanner.
+
+Hon Saring sat on a suspended platform in the middle of the room, eyes closed, emitting a gentle hum. The platform was almost at Maprush's shoulder height Maprush focussed on clearing the mind of all but neutral passive thoughts. Capeoids like Hon Saring were sensitive to moods and emotions. Some could pick up on specific thoughts and tell apart truth and lies. Hon Saring was not so trained, but didn't say anything to dispel suspicions of those who let stories of mind readers and future tellers from the Savelon systems shape their perceptions.
+
+There was an incense burning somewhere out of sight. The nutty, bitter aroma made Maprush's nostrils twitch. Maprush knew this was another part of Hon Saring's attempt to cultivate an air of mystery, because capeoids had no sense of smell or taste themselves.
 
 ------
 
