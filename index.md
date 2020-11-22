@@ -108,7 +108,9 @@ Tosha Gove led Maprush down a stark corridor, lit with a clinically white light,
 
 Tosha Gove pressed a wide, webbed palm to a panel in the wall and a door slid open. Maprush passed through, feeling the light tingle of a weapon scanner.
 
-Hon Saring sat on a suspended platform in the middle of the room, eyes closed, emitting a gentle hum. The platform was almost at Maprush's shoulder height Maprush focussed on clearing the mind of all but neutral passive thoughts. Capeoids like Hon Saring were sensitive to moods and emotions. Some could pick up on specific thoughts and tell apart truth and lies. Hon Saring was not so trained, but didn't say anything to dispel suspicions of those who let stories of mind readers and future tellers from the Savelon systems shape their perceptions.
+Hon Saring sat on a suspended platform in the middle of the room, eyes closed, emitting a gentle hum. The platform was almost at Maprush's shoulder height and served as Hon Saring's primary mode of moving around. Many capeoid species had two or more lower limbs, but Hon Saring was of a variety whose torso ended in a bulbous asymmetrical mass. Surfaces needed to be completely smooth and free of all imperfections to be suitable for such a being to move across, or even better, slick and wet. Only once had Maprush been inside Hon Saring's main headquarters, in the upper debris rings, and the dripping, curved floors and walls had felt truly alien.
+
+Maprush focussed on clearing the mind of all but neutral passive thoughts. Capeoids like Hon Saring were sensitive to moods and emotions. Some could pick up on specific thoughts and tell apart truth and lies. Hon Saring was not so trained, but didn't say anything to dispel suspicions of those who let stories of mind readers and future tellers from the Savelon systems shape their perceptions.
 
 There was an incense burning somewhere out of sight. The nutty, bitter aroma made Maprush's nostrils twitch. Maprush knew this was another part of Hon Saring's attempt to cultivate an air of mystery, because capeoids had no sense of smell or taste themselves.
 
