@@ -114,6 +114,14 @@ Maprush focussed on clearing the mind of all but neutral passive thoughts. Capeo
 
 There was an incense burning somewhere out of sight. The nutty, bitter aroma made Maprush's nostrils twitch. Maprush knew this was another part of Hon Saring's attempt to cultivate an air of mystery, because capeoids had no sense of smell or taste themselves.
 
+Tosha Gove had slipped away and the door to the room was closed behind Maprush.
+
+Maprush stood still, neck angled upwards, eyes on Hon Saring's face. A long, angular face with a wide mouth, flat nose, and vertical slits where eyelids met. The skin was iridescent, silver and white from the light and walls in the room, with blue highlights where Hon Saring's smooth head curved back, and caught in subtle wrinkles by the eyes.
+
+Finally, Hon Saring's nostrils quivered with a deep in breath. Hon Saring spoke with eyes still closed.
+
+
+
 ------
 
 _A team of seventy five delegates from around Celastana will be setting out tomorrow for the eighteen month trip to Mua Langu V. There, they will meet similar parties from some two hundred and twenty four occupied systems around the galaxy. Now eighteen months may seem like a long time for a trip, but many of these will have travelled far further than our lucky representatives, and some using inferior technology. This event has been more than ten years in the making!_
