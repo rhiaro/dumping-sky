@@ -114,11 +114,47 @@ Maprush focussed on clearing the mind of all but neutral passive thoughts. Capeo
 
 There was an incense burning somewhere out of sight. The nutty, bitter aroma made Maprush's nostrils twitch. Maprush knew this was another part of Hon Saring's attempt to cultivate an air of mystery, because capeoids had no sense of smell or taste themselves.
 
-Tosha Gove had slipped away and the door to the room was closed behind Maprush.
+Tosha Gove had slipped away and the door to the room was closed behind Maprush. 
 
 Maprush stood still, neck angled upwards, eyes on Hon Saring's face. A long, angular face with a wide mouth, flat nose, and vertical slits where eyelids met. The skin was iridescent, silver and white from the light and walls in the room, with blue highlights where Hon Saring's smooth head curved back, and caught in subtle wrinkles by the eyes.
 
 Finally, Hon Saring's nostrils quivered with a deep in breath. Hon Saring spoke with eyes still closed.
+
+"Your siblings are well behaved."
+
+The conversation always started this way. Hon Saring's voice was thin and reedy, with an echo like air being forced through a narrow tube. Maprush said nothing. Maprush *thought* nothing.
+
+"In four decaturns, a challenger from Benth comes," Hon Saring paused for effect. Benth was as far away as anyone ever came from. "The challenger will not depart. I will have their ship."
+
+Maprush released a slow breath out. "When do we play?"
+
+"The challenger comes in four decaturns. The schedule is yours."
+
+"What of the ship?"
+
+"A freighter, _stax_ class, with a Puhap hop drive. Arriving with fuel waste for us, and Benthian baubles to gamble no doubt. A small crew."
+
+"Is it," Maprush swallowed, "the drive you want, or the crew?"
+
+"Hardware, hardware," Hon Saring trilled. "The Benthians will find their own way."
+
+"The challenger's name?"
+
+Hon Saring stretched, joints popping, eyes drifting open. "Tosha Gove will furnish you with the details you need."
+
+The words carried finality. Hon Saring had entertained for too long already.
+
+Maprush took another slow breath, dropped eyes to the floor, and backed towards the door. The door slid open and Tosha Gove moved aside so Maprush could pass through.
+
+It was exhausting, to maintain that veneer of calm control. And Hon Saring seemed to be able to infuse any room with tension, even when the topic was inconsequential.
+
+Maprush leaned against the wall for a moment, regaining composure. Tosha Gove slouched nearby, one long, black-clad leg twisted around the other. Eventually Tosha Gove grunted, and motioned with the head for Maprush to follow.
+
+_"Your siblings are well behaved."_ A sentence which held as much relief as menace. Bechar could beat a Benthian, Maprush was sure, but getting the foreigner to stake a ship? That was the challenge. But four decaturns to work on that. Something would come up.
+
+Tosha Gove held out a data pad when the reached the end of the white corridor. Maprush tapped a palm against the surface, and a muffled corresponding beep came from the pad hanging on a cord around Maprush's neck, under three layers of clothes. Whatever additional information there was on the Benthians - and it probably wasn't a lot - Maprush now had.
+
+"Thanks," Maprush attempted a comradely smile at Tosha Gove. Tosha Gove's helmet remained silent and featureless. The tall figure opened the outer door, back to the bar, and then turned on heel and clacked away. _One day,_ Maprush thought, _I'll get a rise out of that_ metac.
 
 
 
