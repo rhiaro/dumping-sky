@@ -242,6 +242,10 @@ Teak hovered, expectantly.
 
 Bechar shrugged, unimpressed by rumours from the west.
 
+"Play a game?"
+
+Teak glared at the change of subject, but moved on at once. The chair buzzed up and over to a shelf, from which Teak grabbed the box of _calaps_ pieces, and brought them back down to Bechar's level.
+
 ...
 
 The game of modified calaps was one of psychology, memory, and pattern recognition. The mistake most people made was to see it primarily as a game of chance.
