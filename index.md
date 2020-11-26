@@ -160,11 +160,11 @@ Tosha Gove held out a data pad when the reached the end of the white corridor. M
 
 ------
 
-_A team of seventy five delegates from around Celastana will be setting out tomorrow for the eighteen month trip to Mua Langu V. There, they will meet similar parties from some two hundred and twenty four occupied systems around the galaxy. Now eighteen months may seem like a long time for a trip, but many of these will have travelled far further than our lucky representatives, and some using inferior technology. This event has been more than ten years in the making!_
+_A team of one hundred and seventy five delegates from around Celastana will be setting out tomorrow for the eighteen month trip to Mua Langu V. There, they will meet similar parties from some two hundred and twenty four occupied systems around the galaxy. Now eighteen months may seem like a long time for a trip, but many of these will have travelled far further than our lucky representatives, and some using inferior technology. This event has been more than ten years in the making!_
 
 _Indeed Celastana, as the figurehead of the five planets in our Puhap solar system, will be one of the most advanced teams at the conference._
 
-_Tune in later tonight for detailed profiles of every single one of our seventy five ambassadors. Find out how they were chosen, and what they are bringing to the table._
+_Tune in later tonight for detailed profiles of every single one of our one hundred and seventy five ambassadors. Find out how they were chosen, and what they are bringing to the table._
 
 _Prime City Evening News, d203 of Final Quarter, 16701_
 
@@ -251,6 +251,80 @@ Teak glared at the change of subject, but moved on at once. The chair buzzed up 
 The game of modified calaps was one of psychology, memory, and pattern recognition. The mistake most people made was to see it primarily as a game of chance.
 
 Bechar had learned how to play at a young age, from the oldest sibling Kento. There were many playing styles, and Bechar found it intuitive to quickly detect which was being used by any particular opponant. Teak was a moderately good opponent, only standing a chance against Bechar because they knew each other so well.
+
+-------
+
+The first month and a half of the voyage were busy and bustling. Ma'Solloquay shared a bunk room with another aid, a young mathematician who had been raised in the countryside, far out of Prime City. Called Amadou, a name for a small yellow flower, Ma initially could see nothing they had in common. It didn't matter: there was no time to socialise. The two barely crossed paths, working, eating, and sleeping on different shifts.
+
+The ship - _Fleet of Wing_ - was small for the population it held. Smaller ships travelled faster with a hop drive, and the journey was plenty long enough. They moved non-stop to the edge of the Puhap system at the fastest speed possible without making a hop. Then they would cross empty space, an unfathomable distance, in mere moments, to the edge of the next system. And then the slow part would begin again, for more than three months, before the next hop.
+
+Ma'Solloquay had a hardcopy of the schedule stuck to the shared bunk room wall with a magnet. It bore the time of each segment in the journey according to the relative time passed on Celastana, on Mua Langu V, and in the new fangled galactic standard time.
+
+One of Ma's goals for this journey was to fathm the new time and date system. And to learn more about Mua Langu V as well. But somehow duties calculating population and economic statistics and writing up reports and translating reports from other departments and pouring over reports from other _planets_ to find common bases for comparisons took up every waking moment.
+
+As the time for the hop drew closer, Ma'Solloquay became nervous. It seemed that many on board were becoming so. Most of the government office had never experienced a hop before. Though a Celastani philosophy was to embrace rather than fear the unknown, sometimes it couldn't be helped.
+
+Ma began pacing corridors when it would have been better to have been at a desk working. But for a gentle background hum, in the governmental offices part of _Fleet of Wing_, you wouldn't know you were alflight in space. The floors were carpeted in soft shades of green and yellow. The walls, painted or hung with warm red and orange furnishings. There were no windows to the black empty outside, but most rooms had a screen with moving images of beaches or cityscapes from Celastana. Ma hadn't seen any more of space so far than was available back on the beaches near Prime City. This gave some disappointment, and some relief.
+
+The hop was on schedule, precisely. For anyone not paying attention, an announcement echoed about the ship, instructing all to strap in to their hop chairs, drink the mouthful of medicine that eased the transition, and relax.
+
+Ma and Amadou were strapped in in their bunk room before the announcement came, but anxious both. Their chairs were against opposite walls, besides their respective beds. Ma felt old beside Amadou; irrationally so. Amadou's skin was as dark as Ma's own, but with no lines or wrinkles. Amadou had all original limbs, something of a rarity these days even among the youth. Ma could tel this by Amadou's posture and gait. Limb replacements gave a lightness or confidence to those who bore them. Amadou's aspect as heavy, but coherant. Balanced.
+
+Amadou smiled across at Ma'Solloquay, trying to smother discomfort.
+
+"I've never done a hop before!" A low gravelly voice, strained with artificial levity.
+
+"Me neither." Ma's voice came out a rasp.
+
+Ma swallowed, coughed. "But they say it's no different at all from the simulations." As the elder, Ma thought, the responsible thing to do is to say something reassuring. Amadou nodded, exuded eagerness, fought down tension.
+
+"To think - sixteen times we will do this!"
+
+_It's taking a long time to get started,_ Ma thought.
+
+"Where are you from?" said Amadou. A nervous talker.
+
+"Prime City, all my life."
+
+"Ah! I came.. went... there a decile ago," Amadou leaned forward against the harness. The way the galactic standard time phrase came out was so natural. A decile was a little over a Celastani year, the an average time to orbit a star calculated from all of the populated worlds in the consortium. "I find it so busy. I think, after this, I'll not stay."
+
+"Back to Pathoran Wells?" Ma skipped over the nicety of asking where Amadou was from. They had both read each other's background history before they boarded, and knew it.
+
+"No... to Chung Low, I think. Not too rural, but not too urban, you know what I mean?"
+
+"Do you have family there?"
+
+"Not any more. I had some cousins who moved from there to Prime-"
+
+A jolt shook the room. Just one.
+
+"That will be the separation," said Ma, knowing Amadou knew this already. Amadou nodded with a thin smile, thankful for the reassurance.
+
+Their side of _Fleet of Wing_ had become _Fleet_ now. From hereon they delegation would travel in two parts, by two slightly different routes. It was both safer and faster that way.
+
+STAND BY TO HOP, a tinny but soft voice came through the hidden speakers in the walls. They had both already taken the hop transition drug, but Ma felt no different. Amadou's eyes were closed.
+
+Time seemed to slow down and speed up simultaneously. Ma lost ssensation in every body part except the arms. For a moment, Ma was only those arms, a pulsing complexity of circuits, electrical charge, simulated nerve endings. There was no light, no sound, no sensation at all except what came through finger tips and skin. Ma's sleeves were tight, a standard plastifabric uniform stretched over upper arms. The forearms were bare, tingling against every molecule in the air. Hands were balling into tight fists, relaxing, then balling up again.
+
+And then Ma's awareness was back in the bunk room, staring across at Amadou's wide eyes and ashen face.
+
+"I feel like..." Amadou gasped, blinked. "Like I _disappeared_. Like nothing... everything went... Just went."
+
+"Just like being asleep for a moment, right?" Said Ma'Solloquay, parroting the simulation guide, knowing it had been nothing like falling asleep at all.
+
+"Right... sleep. Dreamless sleep. Just for a moment." Amadou drew deep breaths, colour returning to cheeks.
+
+HOP COMPLETE. RESUME YOUR DUTIES. DOCKING AT IPSIS TAF ACCORDING TO SCHEDULE.
+
+The first break in the journey. Ipsis Taf was a small moon orbiting the ocean planet Taulin. Taulin was the only planet in Puhap's neighbouring solar system, so it was simply called the Taulin system. Taulin had thirty four moons, all but two of them populated. Ipsis Taf was the second biggest, and most developed.
+
+Ma'Solloquay tried to savour the first moments of stepping onto the surface of a place in an entirely different solar system for the first time ever. It wasn't as exciting as expected. People jostled all about, keen to be free of the constraints of the ship. But the spaceport was a lot like the ship. Ma joined others in a shuttle, nothing unlike city transport on Celastana, and they were all whisked off to accommodation where they would spend the next few... whatever counted for days here. Days by Celastana's count. What would that feel like on a completely different world?
+
+Ma at once missed the hum of _Fleet_. This world was still, and close. After unpacking a small bag in a private room in a gleaming high rise tower, Ma went out to take in some alien air. They all had free time now, a break from duties, until the journey resumed.
+
+Their accommodations were set in something resembling a Celastani park, but without lush verdure. The ground was gravelled in grey and brown, crunchy underfoot. It rolled and dipped in a way that made Ma'Solloquay feel like a giant stepping over tiny mountain ranges. Ma had hoped to see alien arrangements of stars, but the moon was shrouded in a thick blanket of cloud. The air was warm, humid, and heavy. The clouds rolled and roiled with great depth, shades of blue both pale and deep, with silver and cold yellow highlights. Sometimes the skyscape was soft and even, with smooth ripples like the sea. Other times, choppy or fluffy, with monstrous changing shapes and distinct edges. Always, it seemed close enough to touch.
+
+Despite the clouds, it was always light. The moon's rotation pointed the face they were on permanently at the distant white sun. It was eclipsed periodically, by the planet Taulin, and disturbed frequently but intrusion of other moons, but the Celastani delegation didn't stay long enough to witness either.
 
 -------
 
