@@ -328,7 +328,19 @@ Despite the clouds, it was always light. The moon's rotation pointed the face th
 
 Ma'Solloquay shared no common language with the locals of Ipsis Taf, and thus made no new alien friends. Nonetheless, Ma found sitting amongst them pleasant.
 
-The Taulians - so they were all called across all moons in the system, though various different groups had their own collective names - were humanoid like the Celastani, but with smaller, more delicate statures and pale creamy skin.
+The Taulians - so they were all called across all moons in the system, though various different groups had their own collective names - were humanoid like the Celastani, but with smaller, more delicate statures and pale creamy skin. They tended to modify themselves in a decorative fashion, rather than functional, and made little use of electronics in this manner. Most wore thin but close-fitting garments that reached to or over their extremities. They commonly hung chains of what looked like natural pebbles around their necks or wrists, though they turned out to be made from a much lighter, spongy material than actual rock. None had head hair, that Ma had seen, but nearly all of them went about hooded in public.
+
+At one end of the park was a collection of seating and tables. The Taulians gathered there to eat, talk, and play games with dice, cards and counters. The Celastani delegation had been invited to go where they will in the grounds of their accommodation, and Ma'Solloquay had spent most time here.
+
+Ma enjoyed, most of all, listening to them. Their soft voices were melodic, their language flowing with a soft hum. The more Ma listened, the more subtleties became apparent. Trills and vibrations that Ma initially hadn't been able to detect emerged. Low sounds at barely audible pitches.
+
+After a while of watching them, Ma began to be able to pick out individuals, notice differences in posture and faces. They had different heights and builds, variations in feature shapes and expressions. They never touched each other.
+
+The Taulians barely seemed to acknowledge their other worldly guests. Ma'Solloquay was in truth a little disappointed not to be started at or questioned. They moved politely aside if Ma needed to pass through a crowd, but nothing more.
+
+Ma'Solloquay remembered when it was a big deal when out of system visitors came to any of the planets in Puhap. There would be media coverage, and some kind of festival or holiday. Ma supposed it happened so often now that, while it was usually reported on in some form or other, it was no longer worth ordinary people dropping whatever they were doing to celebrate. Perhaps the _Fleet_'s presence was entirely unremarkable here in Taulin. It was embarrassing, then, that Ma'Solloquay was spending so much time sitting in the park, observing the Taulians with curious excitement.
+
+After a few cycles of sleeping, eating and sitting, sleeping, eating and sitting, Ma tried pacing the grounds instead. Ma wondered what Amadou was up to. And what entertainment Ma's superior, Chek Lehn, had found.
 
 -------
 
