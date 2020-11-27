@@ -326,6 +326,10 @@ Their accommodations were set in something resembling a Celastani park, but with
 
 Despite the clouds, it was always light. The moon's rotation pointed the face they were on permanently at the distant white sun. It was eclipsed periodically, by the planet Taulin, and disturbed frequently but intrusion of other moons, but the Celastani delegation didn't stay long enough to witness either.
 
+Ma'Solloquay shared no common language with the locals of Ipsis Taf, and thus made no new alien friends. Nonetheless, Ma found sitting amongst them pleasant.
+
+The Taulians - so they were all called across all moons in the system, though various different groups had their own collective names - were humanoid like the Celastani, but with smaller, more delicate statures and pale creamy skin.
+
 -------
 
 Of those who weren't born on this planet, most came to get away from something. Most were driven there, and not interested in looking back. This, along with its distance from the next nearest inhabitable world (Mua Noxis VII) played a large part in why the place was so isolated.
