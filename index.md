@@ -252,6 +252,24 @@ The game of modified calaps was one of psychology, memory, and pattern recogniti
 
 Bechar had learned how to play at a young age, from the oldest sibling Kento. There were many playing styles, and Bechar found it intuitive to quickly detect which was being used by any particular opponant. Teak was a moderately good opponent, only standing a chance against Bechar because they knew each other so well.
 
+
+HERENOW Teak needs to go somewhere for a minute >>>>>>>>>>>>
+
+
+The players Bechar challenged in the rings were all so serious. As far as Bechar was concerned, they played for trifles, so it never made sense the way some opponents acted like it was life or death. Offworlders must just be like that. Bechar was glad for the relaxed life on Tunnae, where, thanks to the himinies, they always had food and stakes were low.
+
+Except when they weren't. But accidents happen. That's the risk anyone takes with ambitious tech reclamation projects, especially up in the rings. The explosion, several standards ago now, had not been Bechar's siblings' fault. It had been nobody's fault. But the four siblings had paid the price.
+
+Bechar had refused to play _calaps_ for a full standard afterwards. The memory of Kento had been too strong. But Bechar had just been getting good. _Really_ good. One decaturn Maprush had come home to their big empty  house, with a modified _calaps_ set from Tiriminus Prime. It had been wrapped in a thin, crackly old rag. Bechar remembered Maprush getting it out and gently pushing it across the table as they ate together.
+
+"I chased down a debt Kento owed," Maprush explained softly. "Kento would have wanted you to have this. Would have wanted you to play."
+
+Maprush's guilt about concealing the truth from Bechar had been obvious, in posture and eyes. Maprush's hands trembled and voice shook. But Bechar had been too young to notice and too absorbed in the gift. Any unusual behaviour on Maprush's part could be chalked up to resurfaced grief about the loss of their siblings. It had been the anniversary of the accident, that day.
+
+Now, Bechar sat in the den, turning the pieces over. The set of hexagonal cards were stiff, good quality. Everything from Tiriminus Prime was high quality. These were illustrated beautifully, in dark swirling colours of the galaxy, inlaid with silver for the borders and card house symbols. The play pieces too were silver, solid and heavy. They looked simple from afar, but each piece was intricately engraved with unique twisting patterns. The patterns had something to do with the religion on Tiriminus Prime, but Bechar hadn't met anyone who could explain the specifics.
+
+It would soon be time for a broadcast, but Teak hadn't come back yet. Bechar could do it without Teak of course, but it was always nice to have company. Doing the broadcast alone reminded Bechar a little too much of the return to the radio after the accident. Maprush had never been keen on the project, and without the others hadn't wanted anything to do with it any more. It had belonged to all six of them, and now they were down to two. Bechar had pressed ahead anyway, made it a memorial. It had become a lot easier once Teak had come on board.
+
 -------
 
 The first month and a half of the voyage were busy and bustling. Ma'Solloquay shared a bunk room with another aid, a young mathematician who had been raised in the countryside, far out of Prime City. Called Amadou, a name for a small yellow flower, Ma initially could see nothing they had in common. It didn't matter: there was no time to socialise. The two barely crossed paths, working, eating, and sleeping on different shifts.
