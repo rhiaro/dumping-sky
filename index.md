@@ -380,6 +380,13 @@ They stood side by side, both with backs against the wall, trying to keep their 
 
 The chonanoid, whose name was Ish Tavash, was in the employ of Hon Saring for similar reasons to Maprush, though neither of them even spared a thought for the idea they might have anything in common. To Maprush, Ish Tavash was a looming bully, a stereotypical thick-headed henchperson who was looking for any excuse to beat someone up.
 
+...
+
+Fauthstoquaite could blend with shadows and had a habit of slipping into rooms unnoticed. Fauthstoquaite could then step forward, drawing all attention at once, and giving the appearance of having materialised from nowhere. This was to a fault a presence which dominated any space. Fauthstoquaite was tall, and seemed to take up more space than ws natural for a sleek, lithe figure. Beady, wet eyes looked out over an elongated, muzzle-like nose and mouth, held always a little open to reveal rows of pointed fangs. Fauthstoquaite's face, and indeed entire body, shimmered in any light thanks to a covering of silver-pink fur. At the back of Fauthstoquaite's head, large, batlike ears were upright, alert, always turning and twitching.
+
+As usual, Fauthstoquaite wore an understated black and grey all purpose enviro suit, but wrapped over it a bulky padded cloak which seemed to obey its own private laws of gravity. It was ever a mystery what the cloak concealed. Rumours from undetectable weapons to impossible riches flowed from every one of the rare appearances Fauthstoquaite bestowed upon the residents of the debris rings.
+
+
 ----
 
 "I wonder if there's anyone else out there," Teak murmured to the sky.
@@ -395,3 +402,29 @@ Bechar frowned, but said nothing. Bechard had always assumed there were many suc
 A memory surfaced of a long time before. Bechar hadn't been playing _calaps_, but watching Kento. It was maybe the first time ever Bechar had been on the elevator and up to mid ring. The memory of the feeling of newness and unfamiliarity washed over Bechar for a moment. It might be pleasant to feel that way again sometime.
 
 The young Bechar, with no inhibitions about talking to strangers whatsoever, had been asking other _calaps_ players where they came from. At the time, Bechar supposed, the question referred to locations on Tunnae. Bechar's world at that point had recently extended from Port Dee to the western wetlands, so all manner of exciting possibilities were bubbling to the surface. But the responses ranged from cold to hostile. When Kento had realised what was going on, a gentle reprimand put an end to that line of enquiry.
+
+"We could ask Maprush," suggested Teak.
+
+"Why would Maprush know nay more about it than the rest of us?"
+
+"Maprush is older!"
+
+Bechar shrugged.
+
+"People share more with older ones," insisted Teak. "For real. No-one ever answers any questions when you look like us, but I've seen Maprush talking to all kinds of folk while you're playing _calaps_."
+
+"What are you talking about?" Bechar scowled. Buthorn padded over at that moment, drooling. The big creature lay down with a thump and began to gnaw noisily on something.
+
+"You didn't notice? Maprush always seems to be at the back of the room or in a corner having a serious conversation with someone, usually someone scary looking."
+
+"What about?" Bechar tried, unsuccessfully, to feign indifference.
+
+"I dunno _metac_, can't hear, I'm watching your game aren't I? But Maprush talks to all kinds of people. There's this skinny one in all black, face hidden, looks basically lie a shadow standing still. And this giant green _tuppa_ who smells bad. And a teliod or something with four eyes and four arms and that massive flat face. And sometimes a celeian orb is buzzing around nearby but obviously hard to tell if they're actually talking or not."
+
+"Okay okay," Bechar rolled over, belly down, and stuck fingers into the knotty tangle that served for hair. "Maybe I'll ask Maprush." Bechar had questions now, but not the same ones Teak wanted answers to. "Hey Bu, what have you got there?"
+
+Bechar reached for whatever it was the hound was slobbering over, then drew back with a shriek.
+
+"Teak! It's a hand!"
+
+"What!" Teak scrambled over on all fours, then recoiled.
